@@ -1,4 +1,4 @@
-# Welcome to My GitHub Profile, I'm Mohsin!
+# Mohsin Farhat
 
 ## About Me
 
